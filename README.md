@@ -1,4 +1,5 @@
-![image](https://user-images.githubusercontent.com/109627683/180060577-3c60b157-4ee8-4b2a-ab8b-364e717b2a00.png)
+![hacker-gif-1](https://user-images.githubusercontent.com/109627683/180061428-148be88a-fdd5-481c-aa6f-1c2059b3cb43.gif)
+
 ## 👋 Greetings curious human!
 My name is Max and I am from awesome Latvia. 
 - 👀 I’m interested in Cybersecurity, hacking, programming, blockchain technologies and crypto.
