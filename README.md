@@ -1,4 +1,5 @@
-![hacker-gif-1](https://user-images.githubusercontent.com/109627683/180061428-148be88a-fdd5-481c-aa6f-1c2059b3cb43.gif)
+![ezgif-2-7758169014](https://user-images.githubusercontent.com/109627683/180062051-32efa576-9f24-4557-8d28-17bfe15a5c4a.gif)
+
 
 ## 👋 Greetings curious human!
 My name is Max and I am from awesome Latvia. 
